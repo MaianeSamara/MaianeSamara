@@ -1,4 +1,4 @@
-## Olá! Meu nome e Maiane 🤝👨🏽‍🎓💻😄 
+## Olá! Meu nome e Maiane 🤝👨🏽‍💻😄 
 
 Sou Desenvolvedora Front end (Trainee)
 
